@@ -26,9 +26,14 @@
 Visual Novels ，Marble Hornet ，IDV ，Creepypasta ，AOT
 </p>
 <p align="center">
+Ninjago ，Omniscient Reader's Viewpoint ，Musicals
+</p>
+<p align="center">
 Tokyo Revengers ，COD ，DC ，Lego Monkie Kid
 </p>
-
+<p align="center">
+Marauders ，MCU ，Manhwa ，and so much more .ᐟ
+</p>
 
 <p align="center">
 𓈒ㅤׂ 𝜗𝜚
